@@ -1,0 +1,1 @@
+Létrehoztad a játékcégedet. A kezdőpontod lehet a garázsod, vagy gondolkozhatsz nagyban és megvásárolhatod az első stúdiód. Végül a te döntéseid fogják a stúdiódat valakivé tenni, és meglelni a helyet a videójáték-történelemben.
